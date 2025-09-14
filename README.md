@@ -7,7 +7,7 @@
 
 - 📫 How to reach me **rishiththirumuru@gmail.com**
 
-- 📄 Know about my experiences [Resume]([https://drive.google.com/drive/folders/10PoviocpgVLoGgSx1JHOgcciJfaI6ak6](https://drive.google.com/file/d/1Kr21EQ57trXRkeqx7A7vHAMmmhZwMXzI/view?usp=sharing))
+- 📄 Know about my experiences [Resume](https://drive.google.com/file/d/1Kr21EQ57trXRkeqx7A7vHAMmmhZwMXzI/view?usp=sharing)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
